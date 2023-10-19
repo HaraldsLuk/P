@@ -1,0 +1,1 @@
+manuprāt es dariju visu tā normāli tikai lēnāk nekā citi.
